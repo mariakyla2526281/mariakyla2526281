@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mariakyla2526281
+- 👋 Hi, I’m @mariakyla
 - 👀 I’m interested in dancing and singing
 - 🌱 I’m currently learning different language of programming
 - 💞️ I’m looking to collaborate on a group project
